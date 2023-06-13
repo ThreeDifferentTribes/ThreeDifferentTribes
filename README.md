@@ -1,4 +1,4 @@
-### Nothing Remains The Same🏴‍☠️
+### 🏴‍🚩Nothing Remains The Same 
 
 <!--
 **ThreeDifferentTribes/ThreeDifferentTribes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
